@@ -1,0 +1,2 @@
+# dongcodien
+Các loại Motor Điện do MinhMotor phân phối từ động cơ điện 1 pha cho đến động cơ điện 3 pha đều sản phẩm công nghệ Úc, thương hiệu PARMA-GL, bảo hành 48 tháng bởi hệ thống chi nhánh MinhMotor từ Hà Nội tới Cà Mau. Động cơ điện được nhập khẩu mới 100%, sản xuất theo dây chuyền tự động và tiêu chuẩn xuất khẩu Châu Âu. Sản phẩm Motor điện đã được Bộ Khoa Học Công Nghệ Việt Nam chứng nhận sản phẩm tiết kiệm điện năng.
